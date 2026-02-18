@@ -52,6 +52,10 @@ Amsterdam, **Netherlands** or **Online**
 11-15 June 2026  
 Amsterdam , **Netherlands** or **Online**
 
+[**Wey Wey Web 2026**](https://weyweyweb.com/)  
+29-30 October 2026  
+Torremolinos, Málaga, **Spain** or **Online**
+
 [**performance.now()**](https://perfnow.nl)  
 19-20 November 2026  
 Amsterdam, **Netherlands** or **Online**
