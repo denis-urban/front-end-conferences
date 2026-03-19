@@ -52,6 +52,10 @@ Amsterdam, **Netherlands** or **Online**
 11-15 June 2026  
 Amsterdam , **Netherlands** or **Online**
 
+[**Pixel Pioneers Bristol**](https://pixelpioneers.co/events/bristol-2026)  
+19 June 2026  
+Bristol , **United Kingdom**
+
 [**Wey Wey Web 2026**](https://weyweyweb.com/)  
 29-30 October 2026  
 Torremolinos, Málaga, **Spain** or **Online**
